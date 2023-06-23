@@ -1,1 +1,1 @@
-# thelocalcontact.github.io
+# thelocalcontact.com
